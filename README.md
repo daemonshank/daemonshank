@@ -2,7 +2,7 @@
 
 ![lv_0_20250603213851](https://github.com/user-attachments/assets/b3754458-2e82-4b0f-bc1b-560c8069aee3)
 hi my name is daemon i like 1x1x1x1 and homestuck<br>
-i am #1 retroslop-er<br>
+i am #1 soretrocore-er<br>
 #1 1x1x1x1 fan since midnight horrors<br>
 HM: Dave Strider, 1x1x1x1, 1xdoe, pepsicola<br>
 
