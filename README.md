@@ -1,4 +1,4 @@
-*☣ // " R34D TH1S, PUNK ! "*
+*☣ // " C0ME G3T S0ME, PUNK ! "*
 
 ![lv_0_20250603213851](https://github.com/user-attachments/assets/b3754458-2e82-4b0f-bc1b-560c8069aee3)
 hi my name is daemon i like 1x1x1x1 and homestuck<br>
